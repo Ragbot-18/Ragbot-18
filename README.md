@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on any project you might be interested in.
 - 📫 How to reach me 
       Email - rahgavkumarprasad@gmail.com
-      LinkedIn  - https://www.linkedin.com/in/raghav-prasad-b40a4a217/
+      LinkedIn  - https://www.linkedin.com/in/raghav-kumar-prasad-b40a4a217/
       Discord - @ragbot_fuzzybrain
       
 
